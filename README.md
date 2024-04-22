@@ -11,17 +11,6 @@
 
 - 📫 How to reach me **normangitonga388@gmail.com**
 
-- ⚡ Fun fact **I'm quite funny**
-
-### Blog posts
-<!-- BLOG-POST-LIST:START -->
-- [Sex and Sexual Deviations](https://mindcurrents.blog/2024/03/30/sex-and-sexual-deviations/)
-- [Alphabill: The Necessary Upgrade](https://mindcurrents.blog/2024/03/19/alphabill-the-necessary-upgrade-2/)
-- [Alphabill: The Necessary Upgrade](https://mindcurrents.blog/2024/03/17/alphabill-the-necessary-upgrade/)
-- [Just Develop &amp; Enjoy Existence!](https://mindcurrents.blog/2024/03/16/just-develop-enjoy-existence/)
-- [The Teacher in Stoicism](https://mindcurrents.blog/2023/12/22/the-teacher-in-stoicism/)
-<!-- BLOG-POST-LIST:END -->
-
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
